@@ -1,2 +1,2 @@
 # buatadams
-nyoba
+damzzz
